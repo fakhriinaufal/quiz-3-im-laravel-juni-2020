@@ -1,3 +1,6 @@
+### **Fakhrii Habibillah An Naufal**
+
+### **fakhrithunder@gmail.com**
 # Quiz 3 
 
 ## 0. Setup (5 poin)
